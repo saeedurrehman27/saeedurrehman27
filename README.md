@@ -33,3 +33,5 @@ Remote roles in **automation, AI operations and business development**, plus cli
 ### Contact
 
 📫 **Email:** [saeedspace101@gmail.com](mailto:saeedspace101@gmail.com)
+
+💼 **LinkedIn:** [linkedin.com/in/muhammad-saeed-ur-rehman-57043724b](https://www.linkedin.com/in/muhammad-saeed-ur-rehman-57043724b)
